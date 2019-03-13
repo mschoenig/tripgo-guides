@@ -4,4 +4,4 @@ The public transport system works really well in London, and parking fees, the c
 
 -   Like in many other countries, using a mobile phone to call or text while driving is illegal (but you can use a hands-free device)
 
--   If you enter the Congestion Zone (you will see a large white 'C' in a red circle, see picture above) between 7am and 6pm on Monday to Friday, you need to pay the congestion charge in advance or on the day to avoid being fined (<https://tfl.gov.uk/modes/driving/congestion-charge>)
+-   If you enter the Congestion Zone (you will see a large white 'C' in a red circle) between 7am and 6pm on Monday to Friday, you need to pay the congestion charge in advance or on the day to avoid being fined (<https://tfl.gov.uk/modes/driving/congestion-charge>)
