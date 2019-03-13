@@ -1,0 +1,4 @@
+As in any other city, use common sense and curtesy when using public transport. When travelling for leisure, try to avoid rush hour (between 6:30am and 9:30am, and 4:00pm and 7:00pm from Monday through Friday), especially the Tube is very crowded during these times. Tickets are also more expensive then. If you can’t avoid travelling during rush hour, take your backpack off so you don’t accidentally bump into other people or things with it. Stand to the right and walk on the left when riding the escalator, so people who are in a rush can get past you.
+
+Weekends are notorious for engineering works, when entire tube lines or sections shut down. Replacement bus services are usually in place, but they take longer so try to plan ahead.\
+Some stations, most famously Leicester Sq and Covent Garden, are much closer in reality than they appear on the map. Check TripGo for route options.
