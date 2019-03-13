@@ -1,0 +1,1 @@
+On hot days, bus and tram are usually a more pleasant experience than the Tube. Just touch in with your Oyster or contactless card, no need to touch off. Ensure you ring the bell (if no one else has done so yet) well before if you want to get off at the next stop. Check the trip in TripGo to see where you are and where the tram stops.
