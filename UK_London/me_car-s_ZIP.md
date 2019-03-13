@@ -1,0 +1,3 @@
+Car sharing lets you use a car that's not your own and drive it to where you'd like to go, a bit like a rental but available 24/7. We have partnered with zipcar to make the whole process even easier for you.
+
+[TripGo](https://skedgo.com/tripgo) now lets you book your zipcar car or van straight from the app (after [registration](http://members.zipcar.co.uk/registration)). All you then need to do is get to your car, unlock it using the app, get the keys from the glovebox and you're good to go. You just need to return the car to the same spot before your time is up (unless you use [Zipcar Flex](https://www.zipcar.co.uk/flex)).
