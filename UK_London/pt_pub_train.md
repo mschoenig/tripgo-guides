@@ -1,0 +1,3 @@
+As in any other city, use common sense and curtesy when using public transport. When travelling for leisure, try to avoid rush hour (between 6:30am and 9:30am, and 4:00pm and 7:00pm from Monday through Friday). Tickets are also more expensive then. If you can’t avoid travelling during rush hour, take your backpack off so you don’t accidentally bump into other people or things with it. Stand to the right and walk on the left when riding the escalator, so people who are in a rush can get past you.
+
+Before taking a train, check if your trip is inside the Oyster Card area. If it’s outside, you need to get a ticket in advance.
