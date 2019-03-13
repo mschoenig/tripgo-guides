@@ -1,0 +1,1 @@
+You can use [Uber](https://www.uber.com/en-DE/cities/london/) in London as in any other city. Just book, wait for your ride, get in, get out, pay and rate. And if you're interested in being a great passenger, the [Telegraph](https://www.telegraph.co.uk/men/thinking-man/five-star-uber-passenger-including-should-tip-cash/) has some tips for you.
